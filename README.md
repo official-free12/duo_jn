@@ -1,0 +1,6 @@
+# 多级别/静态分红/推荐/对碰/见点/代数/感恩/重复消费 直销系统/软件/源码
+
+多级别/静态分红/推荐/对碰/见点/代数/感恩/重复消费<br>一,加盟费<br>初级会员:3600元<br>中级会员:10800元<br>高级会员:36000元<br>注册时，可选套餐<br>二：静态分红<br>初级会员:20元/天<br>中级会员:60元/天<br>高级会员:200元/天<br>说明：返90天截止<br>三：推荐奖<br>初级 8%<br>中级 9%<br>高级 10%<br>四：对碰奖（1：1）<br>初级 8% ， 5000元封顶<br>中级 10%， 15000元封顶<br>高级 12%， 50000元封顶<br>五：代数奖：10%<br>初级 拿3代<br>中级 拿5代<br>高级 拿8代<br>注:推荐1人拿1代,推荐2人拿2代...,最 高拿8代.<br>六：感恩奖<br>拿上1代管理津贴加权的5%<br>七：见点奖<br>见点1%,拿10层.<br>八：合作奖<br>初级 拿3代静态分红的5%<br>中级 拿5代静态分红的10%<br>高级 拿8代静态分红的15%<br>九：重复消费<br>从会员总收入中，扣取30%自动转为电子币，不可提现，只能报单或购买产品<br>十：扣税5%<br>十一：内部购物：消费电子币购物<br>十二：基本功能：自助扣电子币激活、秒结，互转币。<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/uUvLT" style="color: red;">https://mega-file.org/uUvLT</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
